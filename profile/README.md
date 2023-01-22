@@ -31,7 +31,7 @@
 
 - If you want to become a part of our network you must follow some rules :-
 
-**1. You have to put our tag** " \\ Kχ™ "
+**1. You have to put our tag** " \\\ Kχ™ "
 
 **Tag :-** 
 
