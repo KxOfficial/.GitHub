@@ -4,11 +4,22 @@
 
 <sub>`Official GitHub Organisation`</sub>
 
-
-
-[<img src="https://github.com/KxOfficial/.GitHub/blob/main/Assets/Xoxo.jpg" width="200px" height="auto">](https://github.com/KxOfficial)
+[<img src="Assets/Flag_of_the_Tokyo_Manji_Gang.svg.png" width="200px" height="auto">](https://github.com/KxOfficial)
 
 </div>
+
+➤ **Introduction of Kx?**
+
+Kx Network/Community inspired By **Tokyo Manji Gang**.
+
+*Letter: Tokyo “K” + Manji  “x” = Kx*
+
+The **Tokyo Manji Gang**, also known as Toman, is **a biker gang based in Tokyo, more precisely Shibuya in the World of Tokyo Revengers**. [read more]()
+
+**Who are Kx's?**
+> *Kx's is  group of people working to help you find what you need.*
+ㅤ
+<hr>
 
 - **Name** : Kx Network
 - **Username** : [@KxOfficial](https://telegram.me/KxOfficial)
@@ -33,12 +44,12 @@
 
 **1. You have to put our tag** " \\\ Kχ™ "
 
-**Tag :-** 
+*Tag :- Tap for copy 👇* 
 
 ```
 \\ Kχ™
 ```
-- **For Example :-** *Itachi (うちは) \\\ Kχ™*
+- **For Example :-** *Mikey ( 卍 ) \\\ Kχ™*
 ㅤ
 - You Have To Message My [Assistant](https://t.me/KxAssistant).
 - *“ I Have Joined Our Community ”*
@@ -49,7 +60,7 @@
 
 <div align="center">
 
-────────────────────
+<hr>
 
 Stay Connected With Us.
 
