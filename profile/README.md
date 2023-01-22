@@ -43,14 +43,11 @@
 
 ***Notice Only For Telegram Users.***
 
-
 ────────────────────
 
-[<img src="https://img.icons8.com/ios-filled/500/909090/telegram-app.png" width="30px" height="auto">](https://telegram.me/KxOfficial)ㅤㅤ
-[<img src="https://img.icons8.com/ios-filled/500/909090/instagram-new--v1.png" width="32" height="auto">](https://instagram.com/kxofficially_)ㅤㅤ
-[<img src="https://img.icons8.com/ios-filled/500/909090/youtube.png" width="30" height="auto">](https://youtube.com/@KxOfficial_)ㅤㅤ
-[<img src="https://img.icons8.com/ios-filled/500/909090/twitter.png" width="30" height="auto">](https://twitter.com/kxofficially)ㅤㅤ
-[<img src="https://img.icons8.com/ios-filled/500/909090/facebook-new.png" width="30" height="auto">](https://www.facebook.com/KxOfficially)
+Stay Connected With Us.
+
+[<img src="https://img.icons8.com/ios-filled/500/909090/telegram-app.png" width="30px" height="auto">](https://telegram.me/KxOfficial)ㅤ[<img src="https://img.icons8.com/ios-filled/500/909090/instagram-new--v1.png" width="32" height="auto">](https://instagram.com/kxofficially_)ㅤ[<img src="https://img.icons8.com/ios-filled/500/909090/youtube.png" width="30" height="auto">](https://youtube.com/@KxOfficial_)ㅤ[<img src="https://img.icons8.com/ios-filled/500/909090/twitter.png" width="30" height="auto">](https://twitter.com/kxofficially)ㅤ[<img src="https://img.icons8.com/ios-filled/500/909090/facebook-new.png" width="30" height="auto">](https://www.facebook.com/KxOfficially)
 
 <div>
 
