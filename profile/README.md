@@ -2,7 +2,7 @@
 
 **Kx Network \\\ Kχ™**
 
-<sub>Official GitHub Organisation</sub>
+<sub>`Official GitHub Organisation`</sub>
 
 
 
@@ -15,8 +15,15 @@
 - **Channel ID** : 1746201123
 - **Channel Link** : [Click Here](https://telwgram.me/KxOfficial)
 
+<hr>
 </div>
 <div align="center">
+<sub>
+
+***Notice Only For Telegram Users.*** 
+
+</sub>
+
 「 How can you become a part of us? 」
 
 </div>
@@ -33,15 +40,13 @@
 ```
 - **For Example :-** *Itachi (うちは) \\ Kχ™*
 ㅤ
-- **You have to message one** of the [staff]() the " **I have joined our community** "
+- **You have to message one** of the [staff](https://telegram.me/MaximXChannels/32) the " **I have joined our community** "
 
 - **Advanced of using our Kx tags:**
-  - You will be **verified under [Kx]()**.
-  - Access to join the **[Premium Channel]()**.
+  - You will be **verified under [Kx Staff](http://telegram.me/KxStaff)**.
+  - Access to join the **[Premium Channel](https://telegram.me/KxPremium)**.
 
 <div align="center">
-
-***Notice Only For Telegram Users.***
 
 ────────────────────
 
