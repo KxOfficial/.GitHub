@@ -49,7 +49,7 @@ The **Tokyo Manji Gang**, also known as Toman, is **a biker gang based in Tokyo,
 ```
 \\ Kχ™
 ```
-- **For Example :-** *Mikey ( 卍 ) \\\ Kχ™*
+- **For Example :-** *[Mikey ( 卍 ) \\\ Kχ™](https://github.com/ikx7a)*
 ㅤ
 - You Have To Message My [Assistant](https://t.me/KxAssistant).
 - *“ I Have Joined Our Community ”*
