@@ -40,7 +40,8 @@
 ```
 - **For Example :-** *Itachi (うちは) \\ Kχ™*
 ㅤ
-- **You have to message one** of the [staff](https://telegram.me/MaximXChannels/32) the " **I have joined our community** "
+- You Have To Message My [Assistant](https://t.me/KxAssistant).
+- *“ I Have Joined Our Community ”*
 
 - **Advanced of using our Kx tags:**
   - You will be **verified under [Kx Staff](http://telegram.me/KxStaff)**.
@@ -55,3 +56,4 @@ Stay Connected With Us.
 [<img src="https://img.icons8.com/ios-filled/500/909090/telegram-app.png" width="30px" height="auto">](https://telegram.me/KxOfficial)ㅤ[<img src="https://img.icons8.com/ios-filled/500/909090/instagram-new--v1.png" width="32" height="auto">](https://instagram.com/kxofficially_)ㅤ[<img src="https://img.icons8.com/ios-filled/500/909090/youtube.png" width="30" height="auto">](https://youtube.com/@KxOfficial_)ㅤ[<img src="https://img.icons8.com/ios-filled/500/909090/twitter.png" width="30" height="auto">](https://twitter.com/kxofficially)ㅤ[<img src="https://img.icons8.com/ios-filled/500/909090/facebook-new.png" width="30" height="auto">](https://www.facebook.com/KxOfficially)
 
 <div>
+
