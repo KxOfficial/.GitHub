@@ -38,7 +38,7 @@
 ```
 \\ Kχ™
 ```
-- **For Example :-** *Itachi (うちは) \\ Kχ™*
+- **For Example :-** *Itachi (うちは) \\\ Kχ™*
 ㅤ
 - You Have To Message My [Assistant](https://t.me/KxAssistant).
 - *“ I Have Joined Our Community ”*
